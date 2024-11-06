@@ -1,1 +1,1 @@
-https://lh3.googleusercontent.com/drive-storage/AJQWtBNCSEggRMxM6txFtTYT9KMbkNKaJhwnXKGItcJgDXPDsLFoDvSt2pEVEZG14GfesFV2PDSSpbYyQvp9WMFzYuB9nlLALGK58VIrM3OuZzYw6E0=w1920-h951
+<img width="890" alt="kata_Race" src="https://github.com/user-attachments/assets/cd9c3be3-5e28-4a23-bcd3-21bcdb752914">
